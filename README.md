@@ -1,2 +1,2 @@
-# alvins_recipes
-This probably doesnt belong on github but I needed a place to save my recipes sooo yeah
+# My Recipes
+This probably doesn't belong on GitHub but wanted a place to post stuff so here we are 
