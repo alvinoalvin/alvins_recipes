@@ -1,4 +1,4 @@
-# Wild Mushroom Pasta 
+# Wild Mushroom Pasta (~30mins)
 ## Ingredients
 - wild mushroom mix 
 - thyme (1-2 sprigs)

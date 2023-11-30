@@ -1,4 +1,4 @@
-# Beef Bourginon
+# Beef Bourginon (~2-3 days)
 ## Ingredients 
 ###  Brisket 
 - brisket
