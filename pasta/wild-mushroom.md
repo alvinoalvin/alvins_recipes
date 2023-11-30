@@ -7,7 +7,8 @@
 - egg yolk (1-2)
 - shallot (around 1 small clove)
 - garlic (1 clove)
-- parmigiano reggiano (1 cupish grated) 
+- parmigiano reggiano (1 cupish grated)  
+  - or some other kinda hard cheese you like
 - fresh mushrooms (optional)
 - truffle oil (optional)
 - cream (optional)
