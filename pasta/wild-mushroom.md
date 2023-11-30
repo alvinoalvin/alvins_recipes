@@ -10,6 +10,7 @@
 - parmigiano reggiano (1 cupish grated) 
 - fresh mushrooms (optional)
 - truffle oil (optional)
+- cream (optional)
 
 ## Equipment
 - pot (make sure if you use wider pastas it fits in pot)
@@ -31,5 +32,6 @@
 6. pasta should be ready around now, try some see if it needs more time. turn off heat for pan and transfer pasta over to the pan with a little pasta water
 7. add egg yolk, add cheese in thirds and toss and/or stir vigorously, adding more cheese to thicken sauce or more pasta water to loosen to consinstency you like
    - i tend not to use cream or milk but i think this is where you'd add it if u did
-8. add light drizzle of truffle oil if u wanna be bougie like that and toss one more time 
-9. plate and top with more cheese (just remember to say when)
+8. add light drizzle of truffle oil if u wanna be bougie like that and toss one more time
+9. taste it 
+10. plate and top with more cheese (just remember to say when)
